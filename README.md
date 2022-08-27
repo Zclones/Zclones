@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zclones
+- 👋 Hi, I’m @the_ruler
 - 👀 I’m interested in HACKING AND LOT MORE STUFF 
 - 🌱 I’m currently learning  I'M A STUDENT OF 16 ONLY 
 - 📫 How to reach me MY YOUTUBE CHANNEL 
